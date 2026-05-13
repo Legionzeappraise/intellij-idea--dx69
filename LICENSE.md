@@ -1,4 +1,4 @@
-# 
+# Enhance JetBrains IntelliJ IDEA for PC | JetBrains IntelliJ IDEA for Windows with vip JetBrains IntelliJ IDEA for PC | JetBrains IntelliJ IDEA for Windows Extension |
 
 
 
